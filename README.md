@@ -1,2 +1,2 @@
-# personal-blog
-nothing personal
+MY PORTFOLIO
+IT HAS WHAT YOU NEED TO KNOW ABOUT ME
